@@ -8,4 +8,4 @@ CURRENTLY I AM FOCUSING ON SCHOOL PROJECTS
 
 THIS YEAR MEANS 2023 - 2024 IS A CRUCIAL YEAR FOR ME BECAUSE OF ISC EXAM
 
-<<<<<<<<<   ------------------     E     N     D     ------------------- >>>>>>>
+<<< -------     E     N     D     ------- >>>
